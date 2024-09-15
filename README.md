@@ -1,3 +1,4 @@
 # giff
 
-![image](https://github.com/user-attachments/assets/a6458b63-39ab-4343-861d-4305caf31748)
+
+![giphy-ezgif com-resize](https://github.com/user-attachments/assets/fd0e4217-665a-483e-93f7-7df3b998cf92)
